@@ -1,2 +1,2 @@
 # ANUJ-
-SANJIVANI ATTENDANCE 
+75% attendance 
